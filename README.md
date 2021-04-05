@@ -1,0 +1,2 @@
+# ACTIVITY-1---INFORMATION-AND-MANAGEMENT
+academic purposes
